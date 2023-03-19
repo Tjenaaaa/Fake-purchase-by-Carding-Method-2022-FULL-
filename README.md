@@ -3,8 +3,8 @@
 
 ##### 👑Fake purchase by Carding Method 2022 [FULL]👑 :
 ----------------------
-👊 M4nifest0 (M4) Black Hat Hacking Team™)💪
-➖➖➖➖➖➖➖➖➖➖➖
+- 👊 M4nifest0 (M4) Black Hat Hacking Team™)💪
+
 - ♾ Category :
 
 - 👑In this method, you will learn all the methods related to this field. [2022]
